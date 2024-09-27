@@ -1,2 +1,0 @@
-# sameirdeif.github.io
-Portfolio
